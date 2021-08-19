@@ -1,5 +1,5 @@
 # Privacy Policy
-We take the issue of privacy very seriously and we are committed to protecting and respecting our users' privacy. This Privacy Statement sets out our current data processing practices and should be read in conjunction with our terms and conditions. If you have any queries or concerns regarding these practices, you should contact us at info@1stgossomsendscouts.org.uk
+We take the issue of privacy very seriously and we are committed to protecting and respecting our users' privacy. This Privacy Statement sets out our current data processing practices and should be read in conjunction with our terms and conditions. If you have any queries or concerns regarding these practices, you should contact us using the details below.
 
 1. The information we collect
 The only circumstances in which we will provide any of your personal data to a third party for non commercial purposes are those contained in this Privacy Policy.
