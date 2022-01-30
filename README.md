@@ -19,6 +19,6 @@ We have security measures in place to protect our customer database. Access to t
 You can obtain further information about data protection laws by visiting the Information Commissioner's website at www.dataprotection.gov.uk.
 
 9. Contacting
-If you want to contact us to raise any questions about this privacy statement, you can contact us using this email address: harvey.allsop@gmail.com.
+If you want to contact us to raise any questions about this privacy statement, you can contact us using this email address: harvey@harveyallsop.com
 
 Please use this address if you wish to request from us a copy of the personal data we hold about you.
